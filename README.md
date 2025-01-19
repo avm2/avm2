@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **amanv3985@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1em1ezZEAOnSMGo0kvFKARHkkbVUJHlM6/view?usp=sharing](https://drive.google.com/file/d/1em1ezZEAOnSMGo0kvFKARHkkbVUJHlM6/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1BT1k3BJ3MV7IKa-w1AwICUekFbgoLkKl/view?usp=sharing](https://drive.google.com/file/d/1BT1k3BJ3MV7IKa-w1AwICUekFbgoLkKl/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
